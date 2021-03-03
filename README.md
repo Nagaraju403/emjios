@@ -1,3 +1,3 @@
 # emjios
 so funny :joy:
-feeling happy :happ:
+feeling happy :tent:
